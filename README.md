@@ -14,7 +14,7 @@
 
 🌌 Apreciador de ficção científica
 
-🪐 Qual o novo universo iremos descobrir **hoje**? 🪐
+🪐 Qual o novo universo que iremos descobrir **hoje**? 🪐
 
 
 <br>
